@@ -38,6 +38,14 @@ Us waqt kahin mann hi nahi lagta,
 aisa lagta hai jaise kuch missing hai.
 Aur bina tumhare, Tanmay incomplete hai.
 
+You don't even know...
+how irreplaceable you are to me. It's not about how many people are in my life.. because even with everyone, it would still feel empty without you.
+I don't show it in long paragraphs, but you're the only one my heart runs to.
+I can fight with anyone and be fine... but the moment I fight with you, it feels like the whole world falls apart. Your silence cuts deeper than words.
+You're my peace, my comfort, my safe place... The one who makes my worst days bearable, and my good days brighter. The one I never get tired of..
+So please... don't leave. Don't misunderstand. Don't go to sleep angry. Because no matter what... You'll always be the one I can never replace.
+I Love You
+
 End mein bas itna hi:
 Thank you so much.
 Tumse maine bohot kuch seekha hai —
