@@ -105,7 +105,7 @@ function App() {
               </>
             )}
           </h1>
-          <p>To my pasandida person and my forever one 💗</p>
+          <p>To my pasandida person, constant and  my forever one 💗</p>
         </section>
 
         <Countdown
